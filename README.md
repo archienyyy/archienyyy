@@ -8,10 +8,4 @@ Eu gosto de animes, livros, escrever, desenhar e cantar.
 
 🇧🇷🫧🐋🥾😊🎃🦦🐿🐘🐙
 
-![](https://media1.tenor.com/n7V39N7zwEx.gif)
-
-
-![](https://media2.tenor.com/pt-BR/view/miguel-black-phone-gif)
-
-
-![](https://media3.tenor.com/2uRUC4XIBb.gif)
+![](https://media1.tenor.com/m/oqXxaMwhL3sAAAAd/hinata-shoyo.gif)
